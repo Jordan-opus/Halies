@@ -1,0 +1,1 @@
+Penses-tu que je peux, à partir de mes compositions religieuses, faire des mélanges entre ces dernières et mes autres compositions d'amour (amical, familiale et romantique) afin d'illustrer chaque rencontre comme un cadeau de Dieu ? Si oui, dis-moi quels seraient les meilleurs mélanges qui se marieraient à merveille.
